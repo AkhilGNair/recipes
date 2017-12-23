@@ -4,7 +4,7 @@ Here you'll find some recipes to home made indian food.  You'll notice that most
 
  - The substance (fish, chicken, lentils, veg)
  - A masala
- - Spices.
+ - Spices (usually at least garam masala, red chilli powder and salt)
 
 Good indian food is easy to make. Personally, the main things I have learnt should be emphasised are
 
