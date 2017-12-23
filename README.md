@@ -14,7 +14,7 @@ Good indian food is easy to make. Personally, the main things I have learnt shou
 
  I say use enough salt but it's pretty easy to go overboard. If you do that once, you probably won't do it again.
 
-A refer to a couple of things in these recipes.
+A refer to a couple of things in these recipes follow.
 
 ## A Spoon
 
