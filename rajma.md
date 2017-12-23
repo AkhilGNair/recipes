@@ -30,14 +30,21 @@ The rajma is hard and takes a long time to soften - way longer without a pressur
  - Soak kidneys beans and channa dal overnight
  - Pressure cook for `30` minutes in with haldi, salt, chilli
    - Without pressure cooker, boil for `4` hours with lots of water
+
+![Boiling about an hour in](assets/rajma/boiling.jpg)
+
  - Boil until soft and saucy thickens (`30` minutes to `1` hour)
     - Rajma should split on a stiff poke
     - A skin forming on top implies the sauce is quite thick
+
+![Will break open with some pressure](assets/rajma/soft.jpg)
 
 ### Make Masala
 
  - Grind garlic, ginger, and onion in a mini chopper until chunky tasty masala paste
  - Cook in oil until fried brown
+
+![Some brown ass shit yo](assets/rajma/fried.jpg)
 
 Pretty good opportunity to do some cleaning here.
 
@@ -46,9 +53,13 @@ Pretty good opportunity to do some cleaning here.
  - Add chopped tomato and cook for about `10` minutes until the tomato is cooked
    - You should see bubbles of oil at the side of the pan
 
+![You can juuust about see the oil bubbles](assets/rajma/tomato.jpg)
+
 ### Combining 
 
  - Chuck the masala in the rajma
    - The sauce should be instantly thicker
  - Boil for a couple more minutes to mix properly
  - Add salt to taste (maybe half a spoon?)
+
+![As it cools it will get hella thick](assets/rajma/cooked.jpg)
