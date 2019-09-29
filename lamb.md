@@ -38,6 +38,7 @@ On the day
 If pressure cooking
 
  - Mix and pressure cook for about 10 - 15 minutes 
+ - A lot of water will have been released. Allow this to boil off on a high heat
 
 If not pressure cooking
 
@@ -48,8 +49,7 @@ If not pressure cooking
 
 After the meat has softened
 
- - A lot of water will have been released. Allow this to boil off on a high heat
- - As the sauce thickens, add garam masala and red chilli powder to taste
+ - Thicken the sauce, add garam masala and red chilli powder to taste
    - About a spoon of garam malasa was added, and quarter red chilli
  - Add some sliced green chilli to desired heat and simmer
    - Also added another spoon garam masala for my benefit :)
