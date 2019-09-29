@@ -32,20 +32,26 @@ On the day
  - Slice the onions (it doesn't matter too much, they will disappear)
  - Mix the marinated lamb and the sliced onion well
  - Fry over a medium heat for 8 - 10 minutes
- - Squeeze in the juice of half a lemon
+ - Squeeze in the juice of half a :lemon:
+ - Add about half a mug of water
 
 If pressure cooking
 
- - Add about half a mug of water
  - Mix and pressure cook for about 10 - 15 minutes 
- - A lot of water will have been released Allow this to boil off on a high heat
+
+If not pressure cooking
+
+ - Add water to cover the lamb
+ - Slow cook on a medium heat for about an hour and a half mixing occasionally. 
+ - Cook the meat to the desired texture
+ - Note: the :sheep: firms up on initially frying, but eventually softens
+
+After the meat has softened
+
+ - A lot of water will have been released. Allow this to boil off on a high heat
  - As the sauce thickens, add garam masala and red chilli powder to taste
    - About a spoon of garam malasa was added, and quarter red chilli
  - Add some sliced green chilli to desired heat and simmer
    - Also added another spoon garam masala for my benefit :)
-
-If not pressure cooking
-
-To be filled in
 
 Best served with some tasty-ass buttered naan (or my preferred, pitta).
