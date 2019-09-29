@@ -45,3 +45,5 @@ If pressure cooking
 If not pressure cooking
 
 To be filled in
+
+Best served with some tasty-ass buttered naan (or my preferred, pitta).
